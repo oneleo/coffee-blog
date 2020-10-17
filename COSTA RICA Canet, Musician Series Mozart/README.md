@@ -19,11 +19,11 @@
 ## 沖泡
 - 沖泡的時候濃濃的咖啡香散落在客廰的各個角落，好似美好的愛情即將要有了結果
 
-![COSTA RICA Canet, Musician Series Mozart](../images/001/001-002.jpg)
+![002](../images/001/001-002.jpg)
 
 ## 星晴小羽
 - 這次的咖啡可說是有滿滿的水果香氣，後勁是微微的果酸味，讓人愛不釋手
 - 一入口真的有白酒香氣！
 - 謝謝我親愛的另一半媽媽給的咖啡，讓我對咖啡品味又更上了一層 ^.^
 
-![COSTA RICA Canet, Musician Series Mozart](../images/001/001-003.jpg)
+![003](../images/001/001-003.jpg)
